@@ -9,4 +9,4 @@ I'm a software engineer interested in the intersection between music and technol
 - If i'm not coding i'm writing music, playing video games, or studying emerging technologies
 
 
-Contact [Durrell](https://www.linkedin.com/in/dujules23/)
+Contact [Durrell] (https://www.linkedin.com/in/durrell-jules/)
